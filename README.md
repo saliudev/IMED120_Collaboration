@@ -7,5 +7,3 @@ This is jaden and I like anime.
 This is Dr. Liu, I am happy that you guys are here for the open source project.
 This is Jehmani and I am doing okay.
 This is Josh I think Aot's newest episode was epic.
-
-This is Stacey! It took me forever but I'm here!
