@@ -14,3 +14,5 @@ Hello this is Mickey, i like doodling. my wifi is not doing the best but I'm sti
 Hi, This is Celys
 
 This is Stacey! It took me forever but I'm here!
+
+Hello, This is Giovanni and I'm probably not doing this right. 
